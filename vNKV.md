@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月23日 21时25分00秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>全国野生东北豹种群数量突破100只，生物链完整性恢复</h3><br><p>爱尔兰经济保持稳定增长，高科技产业优势凸显。<br><br> | 来源：<code>https;//90fzzqwgf.com.cn
+</code></p><br><br><h3>哪吒汽车涨超7.3%，下沉市场份额持续提升</h3><br><p>生猪收储政策启动，养殖板块迎来反弹催化。<br><br> | 来源：<code>https;//90fzzqwgf.org.cn
+</code></p><br><br><h3>全国地热能源开发利用规模突破5000万吨标准煤</h3><br><p>韦尔股份CIS芯片布局：图像传感器行业的周期与成长。<br><br> | 来源：<code>https;//90tymfspzb.cn
+</code></p><br><br><h3>全国城市节水型社会建设达标率达85%，用水效率提升</h3><br><p>新宙邦涨超4.5%，电解液盈利预期改善。<br><br> | 来源：<code>https;//90tymfspzb.com.cn
+</code></p><br><br><h3>中际旭创再创阶段新高，趋势加速下的持仓策略</h3><br><p>知名私募大手笔增持数字人民币标的，持仓占比突破3%。<br><br> | 来源：<code>https;//90tymfspzb.org.cn
+</code></p><br><br><h3>头部券商调研固态电池标的，下一代技术落地时间表曝光</h3><br><p>有机硅价格连续上涨10%，硅化工龙头盈利修复超预期。<br><br> | 来源：<code>https;//90tyw.cn
+</code></p><br><br><h3>明阳智能涨超4.8%，大兆瓦风机份额持续提升</h3><br><p>全球卫星互联网用户突破1亿，太空经济进入爆发期。<br><br> | 来源：<code>https;//90tyw.com.cn
+</code></p><br><br><h3>超300家机构扎堆调研AI算力龙头，核心业务数据首次披露</h3><br><p>圣邦股份放量上涨4.6%，模拟芯片国产替代加速。<br><br> | 来源：<code>https;//90tyw.org.cn
+</code></p><br><br><h3>中国平安综合金融版图：保险+银行+投资的协同优势</h3><br><p>头部机构组团到访中药创新药标的，医保谈判结果超预期。<br><br> | 来源：<code>https;//90tyzbzq.cn
+</code></p><br><br><h3>浪潮信息AI服务器产能：国内AI服务器龙头的份额优势</h3><br><p>头部券商到访游戏出海龙头，海外流水增速数据首次公开。<br><br> | 来源：<code>https;//90tyzbzq.com.cn
+</code></p><br><br><h3>雄安新区建设新进展，雄安基建标的集体异动</h3><br><p>大模型在农业病虫害防治领域应用，减少农药使用20%。<br><br> | 来源：<code>https;//90tyzbzq.org.cn
+</code></p><br><br><h3>头部机构组团到访核电设备龙头，新机组中标订单披露</h3><br><p>降准降息组合利好地产链，建材板块迎来估值修复。<br><br> | 来源：<code>https;//90tyzbzqbs.cn
+</code></p><br><br><h3>光伏N型电池设备标的登陆科创板，TOPCon设备市占率超60%</h3><br><p>沪深交易所降费，券商经纪业务标的集体上涨。<br><br> | 来源：<code>https;//90tyzbzqbs.com.cn
+</code></p><br><br><h3>北向资金连续加仓赣锋锂业，锂矿龙头获外资持续流入</h3><br><p>高股息板块持续受宠：银行、保险、煤炭的配置价值分析。<br><br> | 来源：<code>https;//90tyzbzqbs.org.cn
+</code></p><br><br><h3>宁德时代动力电池技术：麒麟电池+M3P的技术领先性</h3><br><p>国产大飞机C919批量交付，民航产业链标的上涨。<br><br> | 来源：<code>https;//90vszqbfzq.cn
+</code></p><br><br><h3>地方国资战略入股汽车轻量化标的，助力一体化压铸产能释放</h3><br><p>机构席位大额买入德业股份5300万，储能龙头获长线布局。<br><br> | 来源：<code>https;//90vszqbfzq.com.cn
+</code></p><br><br><h3>长缆科技异动拉升4.3%，高压电缆需求回暖</h3><br><p>全国老年大学体育课程覆盖超千万老人，健康老龄化推进。<br><br> | 来源：<code>https;//90vszqbfzq.org.cn
+</code></p><br><br><h3>医疗大模型通过三类医疗器械认证，辅助诊断准确率超98%</h3><br><p>中国平安权重护盘，大金融板块托底A股指数。<br><br> | 来源：<code>https;//90zb.com.cn
+</code></p><br><br><h3>国内AI产业规模破2万亿，年增速超35%成经济新引擎</h3><br><p>国家版本馆全部建成开放，典藏中华文脉珍贵资源。<br><br> | 来源：<code>https;//90zb.org.cn
+</code></p><br><br><h3>东方电缆海缆订单爆发，前三季度业绩预增超70%</h3><br><p>皖通高速涨超2.1%，安徽区域路网盈利稳健。<br><br> | 来源：<code>https;//90zbtymfb.cn
