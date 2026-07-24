@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分10秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>亿纬锂能储能订单爆发，前三季度业绩预增90%</h3><br><p>五粮液批价上涨5%，次高端白酒板块迎来行情。<br><br> | 来源：<code>https://huahualove.org.cn
+</code></p><br><br><h3>甘肃建投涨超3.0%，一带一路西北基建项目推进</h3><br><p>动力电池回收管理办法出台，锂电回收板块全线异动。<br><br> | 来源：<code>https://huan-qi-yi-zu.com.cn
+</code></p><br><br><h3>乳制品质量升级政策，乳业龙头标的全线异动</h3><br><p>全国滑板锦标赛举办，年轻选手展现街头运动活力。<br><br> | 来源：<code>https://huang-jiujiu.com.cn
+</code></p><br><br><h3>国产科幻电影票房突破50亿元，《流浪地球3》刷新纪录</h3><br><p>福耀玻璃全球汽车玻璃布局：细分赛道全球龙头的壁垒。<br><br> | 来源：<code>https://huang-mantiantang.com.cn
+</code></p><br><br><h3>游戏大模型落地，AI实时生成游戏场景大幅降低开发成本</h3><br><p>派能科技户用储能电池技术：全球户用储能龙头的壁垒。<br><br> | 来源：<code>https://huang-wed.cn
+</code></p><br><br><h3>亿纬锂能异动拉升6.3%，大储订单持续超预期</h3><br><p>2026年美丽中国建设成效显著，绿色发展底色更加鲜明。<br><br> | 来源：<code>https://huang-you.com.cn
+</code></p><br><br><h3>全球5G用户突破30亿，中国市场占比超一半</h3><br><p>全国国家森林公园数量增至1000个，生态旅游蓬勃发展。<br><br> | 来源：<code>https://huang-youdaquan.com.cn
+</code></p><br><br><h3>城市漫步Citywalk成新潮流，相关搜索量同比暴涨300%</h3><br><p>实控人溢价20%增持氢能龙头，传递公司价值被低估信号。<br><br> | 来源：<code>https://huanggua-shipin-app.com.cn
+</code></p><br><br><h3>全国全民健身日活动覆盖超亿人次，群众体育热情高涨</h3><br><p>超240家机构到访氢能燃料电池标的，商用车推广数据公开。<br><br> | 来源：<code>https://huanggua-shipin.cn
+</code></p><br><br><h3>5年期LPR下调带动地产链估值修复，家居家电板块集体上涨</h3><br><p>北方稀土政策壁垒：稀土开采总量控制下的稀缺性价值。<br><br> | 来源：<code>https://huanggua-shipin.com.cn
+</code></p><br><br><h3>剧本杀门店超5万家，沉浸式文旅体验成为年轻消费热点</h3><br><p>北京君正涨超5.3%，车载存储芯片需求爆发。<br><br> | 来源：<code>https://huanggua-shipinxiazai.com.cn
+</code></p><br><br><h3>公募基金集中调研智慧交通标的，车路协同项目落地节奏</h3><br><p>海尔智家稳步上行，白电行业格局持续优化。<br><br> | 来源：<code>https://huanggua-wangzhan.com.cn
+</code></p><br><br><h3>多地景区推出“一票通”联票，覆盖周边十余景点让利游客</h3><br><p>网络安全政策升级，网安板块集体上涨。<br><br> | 来源：<code>https://huanggua-yingyuan.com.cn
+</code></p><br><br><h3>央行宣布定向降准1个百分点，精准支持普惠金融领域</h3><br><p>全国乡村旅游重点村暑期接待人次破1亿，民宿入住率超95%。<br><br> | 来源：<code>https://huangguachuanmei.com.cn
+</code></p><br><br><h3>中东产油国延长减产协议，国际油价维持温和上涨态势</h3><br><p>鸭肉价格上涨12%，水禽养殖板块迎来行情。<br><br> | 来源：<code>https://huangguan-sports-pro.com.cn
+</code></p><br><br><h3>青岛暑期滨海旅游订单同比增长40%，海滨城市人气高涨</h3><br><p>润和软件鸿蒙生态布局：国产操作系统的商业化空间测算。<br><br> | 来源：<code>https://huangguanqiutan.com.cn
+</code></p><br><br><h3>知名私募组团调研MR产业链标的，新品备货数据曝光</h3><br><p>全国职业病防治体系完善，劳动者健康权益得到全面保障。<br><br> | 来源：<code>https://huangguashipinapp.cn
+</code></p><br><br><h3>养老金现身特高压龙头调研，海外工程落地节奏引热议</h3><br><p>游资知名席位联手买入固德威5000万，储能标的获追捧。<br><br> | 来源：<code>https://huangguashipinwangyeban.com.cn
+</code></p><br><br><h3>全国南水北调沿线生态廊道建成，水质稳定保持Ⅱ类</h3><br><p>机构席位联手买入三一重工3亿，工程机械龙头获资金布局。<br><br> | 来源：<code>https://huangguashipinzaixian.cn
+</code></p><br><br><h3>东方电气风电设备订单爆发，前三季度业绩预增超35%</h3><br><p>北向资金连续加仓东方财富，互联网券商获外资持续流入。<br><br> | 来源：<code>https://huangguashipinzaixianguankan.cn
