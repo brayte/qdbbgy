@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分31秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>明阳智能海上风电优势：大兆瓦风机的技术领先性逻辑</h3><br><p>普惠小微贷款利率进一步下行，中小微企业盈利改善。<br><br> | 来源：<code>https://xiai-yepu.com.cn
+</code></p><br><br><h3>国产大飞机C919批量交付，民航产业链标的上涨</h3><br><p>天津建投异动拉升2.8%，天津基建投资持续增长。<br><br> | 来源：<code>https://xiangjiao-manhua.com.cn
+</code></p><br><br><h3>全国地下水超采综合治理成效显著，水位回升超2米</h3><br><p>外资机构席位大额买入药明康德5亿，CXO赛道获外资加仓。<br><br> | 来源：<code>https://xiangjiao-shipin.cn
+</code></p><br><br><h3>国产综艺节目海外版权输出量同比增长60%</h3><br><p>江铃汽车新能源轻卡高增，单季业绩预告超预期。<br><br> | 来源：<code>https://xiangjiao-shipin.com.cn
+</code></p><br><br><h3>长安汽车涨停封板，自主车企销量超预期引爆行情</h3><br><p>北向资金大额扫货天合光能7100万，光伏龙头获外资流入。<br><br> | 来源：<code>https://xiangjiao-shipinxiazai.com.cn
+</code></p><br><br><h3>头部券商到访调味品龙头，渠道库存去化周期数据披露</h3><br><p>中俄双边贸易额上半年突破1200亿美元，创历史新高。<br><br> | 来源：<code>https://xiangjiao-zh.com.cn
+</code></p><br><br><h3>保险资管扎堆调研煤炭智能化龙头，煤矿智能化改造渗透率</h3><br><p>多晶硅价格连续上涨7%，光伏产业链价格体系企稳回升。<br><br> | 来源：<code>https://xiangjiaovideos.cn
+</code></p><br><br><h3>机构资金联手买入北京君正9500万，车载存储龙头获抱团</h3><br><p>知名私募调研卫星互联网标的，低轨卫星组网计划披露。<br><br> | 来源：<code>https://xiangshuichun.org.cn
+</code></p><br><br><h3>社保基金新进汽车座椅龙头，布局汽车轻量化赛道</h3><br><p>敦煌莫高窟数字展示中心升级，游客沉浸式体验千年壁画。<br><br> | 来源：<code>https://xiangxiang-fu-zhai.com.cn
+</code></p><br><br><h3>全国乡村旅游重点村暑期接待人次破1亿，民宿入住率超95%</h3><br><p>美国通胀回落至2.5%，为后续进一步降息打开空间。<br><br> | 来源：<code>https://xiao-huangyou.com.cn
+</code></p><br><br><h3>全国足球场数量超20万个，人均足球场地面积达1.8平方米</h3><br><p>存量房贷利率下调释放居民现金流，可选消费板块受益。<br><br> | 来源：<code>https://xiao-lan-shipin.com.cn
+</code></p><br><br><h3>全国生物多样性观测网络建成，覆盖超3000个生态点位</h3><br><p>存款利率下调推动居民储蓄搬家，权益市场增量资金入场。<br><br> | 来源：<code>https://xiao-lanshipin.com.cn
+</code></p><br><br><h3>通威股份硅料盈利修复，单季业绩预告环比大增</h3><br><p>亚太经合组织峰会召开，达成数字经济合作框架。<br><br> | 来源：<code>https://xiao-mitao.com.cn
+</code></p><br><br><h3>水产品价格集体上涨，水产养殖板块迎来涨价催化</h3><br><p>北向资金举牌工业机器人龙头，外资持仓创历史新高。<br><br> | 来源：<code>https://xiao-shimei.com.cn
+</code></p><br><br><h3>中国男子乒乓球队世乒赛团体夺冠，实现十一连冠伟业</h3><br><p>中印经贸合作回暖，双边贸易额同比增长15%。<br><br> | 来源：<code>https://xiao-wu-nu.com.cn
+</code></p><br><br><h3>全国铁人三项联赛覆盖20城，参赛人数同比增长80%</h3><br><p>全国首套房住房贷款"认房不认贷"政策全面落地。<br><br> | 来源：<code>https://xiaobaogou.com.cn
+</code></p><br><br><h3>中兴通讯放量上涨4.8%，算力服务器业务高增</h3><br><p>美联储第三次降息落地，全球风险偏好显著提升。<br><br> | 来源：<code>https://xiaobaoxunhuazaixianguankan.cn
+</code></p><br><br><h3>券商板块异动激活人气：行情回暖下的贝塔机会解析</h3><br><p>全国石漠化土地面积持续缩减，治理率超60%。<br><br> | 来源：<code>https://xiaocaoav.cn
+</code></p><br><br><h3>赣锋锂业固态电池布局：全球锂矿龙头的技术储备优势</h3><br><p>长电科技放量上涨4.8%，先进封装订单饱满。<br><br> | 来源：<code>https://xiaochaihu.com.cn
+</code></p><br><br><h3>中国男子跳高选手跳出2米40，打破尘封28年全国纪录</h3><br><p>全国家电以旧换新政策落地，回收拆解绿色化率达100%。<br><br> | 来源：<code>https://xiaogoukan-fan.com.cn
