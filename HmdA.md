@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时08分20秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>国际铜价持续上行，铜业板块标的全线异动</h3><br><p>全国博物馆总数突破6500家，年接待观众超12亿人次。<br><br> | 来源：<code>https://zh-miya.com.cn
+</code></p><br><br><h3>工业金属集体上涨，有色板块迎来全面行情催化</h3><br><p>海产品全产业链涨价，水产板块全面异动。<br><br> | 来源：<code>https://zh-mogushipin.com.cn
+</code></p><br><br><h3>存量房贷利率下调释放居民现金流，可选消费板块受益</h3><br><p>科大讯飞AI业务盈利兑现，单季净利润同比增120%。<br><br> | 来源：<code>https://zh-nan-tong-wang.com.cn
+</code></p><br><br><h3>阳光电源跳空高开，缺口支撑下的短期趋势判断</h3><br><p>五粮液重回165元，中秋旺季备货提前启动。<br><br> | 来源：<code>https://zh-ntr.com.cn
+</code></p><br><br><h3>猪肉价格连续反弹20%，生猪养殖板块迎来趋势性行情</h3><br><p>恒瑞医药异动拉升5.6%，创新药新品贡献增量。<br><br> | 来源：<code>https://zh-panjinlian.com.cn
+</code></p><br><br><h3>敦煌莫高窟暑期门票预约排至10天后，数字敦煌线上访问破亿</h3><br><p>实控人邀约收购中药创新药企业，溢价35%发起全面要约。<br><br> | 来源：<code>https://zh-pipi-yingyuan.com.cn
+</code></p><br><br><h3>中国斯诺克选手闯入世锦赛决赛，创亚洲选手最佳战绩</h3><br><p>外资单日加仓三一重工12亿，工程机械龙头获外资回流。<br><br> | 来源：<code>https://zh-pipiyingyuan.com.cn
+</code></p><br><br><h3>电感产品价格上涨3%，电子全产业链盈利优化</h3><br><p>中国皮划艇队世锦赛斩获3金，静水项目优势持续扩大。<br><br> | 来源：<code>https://zh-pochu.com.cn
+</code></p><br><br><h3>北向资金连续增持养老产业标的，银发经济赛道获外资流入</h3><br><p>紫光国微特种芯片高增，单季业绩预告超预期。<br><br> | 来源：<code>https://zh-quanluo.com.cn
+</code></p><br><br><h3>基金公司集体到访液冷技术龙头，AI数据中心液冷订单爆发</h3><br><p>国产大模型日活用户破2亿，覆盖办公、教育、医疗全场景。<br><br> | 来源：<code>https://zh-rujiao.com.cn
+</code></p><br><br><h3>AI音乐生成工具普及，原创音乐产出效率提升10倍</h3><br><p>中国毽球队世界杯包揽全部冠军，民间运动走向世界舞台。<br><br> | 来源：<code>https://zh-sanjipian.com.cn
+</code></p><br><br><h3>全球粮食价格指数连续6个月回落，粮食危机压力缓解</h3><br><p>教育改革与人才发展（100条）。<br><br> | 来源：<code>https://zh-saohuo.com.cn
+</code></p><br><br><h3>全国钢铁行业超低排放改造完成，减排效果达国际先进水平</h3><br><p>知名私募大手笔增持储能电池标的，海外户储订单获资本布局。<br><br> | 来源：<code>https://zh-sejishikong.com.cn
+</code></p><br><br><h3>头部机构组团到访风电轴承龙头，大兆瓦轴承市占率提升</h3><br><p>全国国家森林公园数量增至1000个，生态旅游蓬勃发展。<br><br> | 来源：<code>https://zh-shaofu.com.cn
+</code></p><br><br><h3>重庆洪崖洞暑期日均游客量突破25万人次，网红城市持续火爆</h3><br><p>杭州亚运会后首个体育年，全国赛事活动数量同比增长40%。<br><br> | 来源：<code>https://zh-shouyin.com.cn
+</code></p><br><br><h3>长鑫存储DDR5产能释放，内存芯片标的集体上涨</h3><br><p>中国男子击剑队世锦赛团体夺冠，重回世界顶尖行列。<br><br> | 来源：<code>https://zh-shunu.com.cn
+</code></p><br><br><h3>稀土永磁政策红利：行业供需格局优化下的投资机会</h3><br><p>印度经济增速达7.2%，成为全球增长最快主要经济体。<br><br> | 来源：<code>https://zh-sm.com.cn
+</code></p><br><br><h3>社保基金大幅加仓创新器械标的，单季度持仓增幅超50%</h3><br><p>泰山暑期单日登顶客流破6万，夜间登山游客占比超70%。<br><br> | 来源：<code>https://zh-tiaojiao.com.cn
+</code></p><br><br><h3>万科A地产行业格局：龙头房企的抗风险能力与复苏空间</h3><br><p>WTT新乡世界杯，孙颖莎卫冕女单冠军实现赛季大满贯。<br><br> | 来源：<code>https://zh-wuma.com.cn
+</code></p><br><br><h3>百亿级机构组团到访低空经济龙头，低空试飞进展获披露</h3><br><p>液态奶价格上涨3%，乳制品板块迎来涨价催化。<br><br> | 来源：<code>https://zh-xiuxiushipin.com.cn
