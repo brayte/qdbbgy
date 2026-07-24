@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时08分11秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>零跑汽车高性价比路线：下沉市场新能源车企的成长逻辑</h3><br><p>低空旅游市场爆发，上半年直升机观光订单同比增长200%。<br><br> | 来源：<code>https://bachabacha.com.cn
+</code></p><br><br><h3>重庆洪崖洞暑期日均游客量突破25万人次，网红城市持续火爆</h3><br><p>汽车数据安全管理新规，汽车软件板块集体上涨。<br><br> | 来源：<code>https://bafuli.com.cn
+</code></p><br><br><h3>北向资金连续增持养老产业标的，银发经济赛道获外资流入</h3><br><p>企业融资成本创历史新低，制造业投资增速回升。<br><br> | 来源：<code>https://bageheiliao.com.cn
+</code></p><br><br><h3>控股股东耗资4亿增持算力租赁标的，回购注销增厚每股收益</h3><br><p>数字人民币试点扩容，数字人民币产业链走强。<br><br> | 来源：<code>https://bageheiliao.org.cn
+</code></p><br><br><h3>5年期LPR超预期下调，地产链迎来全面行情催化</h3><br><p>全国农产品网络零售额上半年突破3500亿元，助力乡村振兴。<br><br> | 来源：<code>https://bai-si.com.cn
+</code></p><br><br><h3>北向资金举牌广告营销龙头，AI营销高增获外资持续流入</h3><br><p>东方电气风电设备技术：国内能源装备龙头的多赛道布局。<br><br> | 来源：<code>https://baicaiba-bocai-bbs.com
+</code></p><br><br><h3>全球生物医药市场规模突破1.8万亿美元，创新药研发加速</h3><br><p>四川路桥一带一路订单落地，前三季度业绩预增超40%。<br><br> | 来源：<code>https://baihe-hui.com.cn
+</code></p><br><br><h3>游戏出海企业登陆创业板，海外流水占比超70%引资金热捧</h3><br><p>全国旅游厕所建设完成，所有景区实现第三卫生间全覆盖。<br><br> | 来源：<code>https://baihubi.org.cn
+</code></p><br><br><h3>国内高端旅游产品走俏，定制游订单同比增长90%</h3><br><p>证监会启动全面注册制优化改革，提升资本市场包容性。<br><br> | 来源：<code>https://baihuluoli.com.cn
+</code></p><br><br><h3>梅花生物氨基酸价格反弹，前三季度业绩预增超40%</h3><br><p>镍价单月上涨11%，不锈钢板块迎来涨价催化。<br><br> | 来源：<code>https://baihuziwei.com.cn
+</code></p><br><br><h3>韦尔股份异动拉升5.1%，CIS芯片需求回暖</h3><br><p>锂价连续反弹三个月，锂矿板块集体走强。<br><br> | 来源：<code>https://baisijk.com.cn
+</code></p><br><br><h3>安凯客车涨超4.3%，客车出口订单同比增长</h3><br><p>长安汽车深蓝品牌定位：主流新能源市场的差异化竞争。<br><br> | 来源：<code>https://baisijkbaihu.com.cn
+</code></p><br><br><h3>保险资管扎堆调研机器人减速器标的，产能释放进度披露</h3><br><p>大股东耗资3.8亿增持钙钛矿设备标的，助力核心设备研发。<br><br> | 来源：<code>https://baisijurumeinu.com.cn
+</code></p><br><br><h3>国产AI芯片算力突破256TOPS，支撑大模型高效运行</h3><br><p>全国重点流域水生态环境保护规划落地，治理投入超万亿元。<br><br> | 来源：<code>https://baisiluoli.com.cn
+</code></p><br><br><h3>云南建投放量上涨3.4%，南亚基建订单落地加速</h3><br><p>中澳关系持续回暖，双边贸易额同比增长12%。<br><br> | 来源：<code>https://baleshipinwuwuzaixianguankan.cn
+</code></p><br><br><h3>循环经济发展规划，资源回收标的全线拉升</h3><br><p>QFII大幅加仓IDC龙头，海外资金看好AI算力需求爆发。<br><br> | 来源：<code>https://bandao-sports-pro.com.cn
+</code></p><br><br><h3>上半年全国文化产业营收同比增长14%，文旅融合加速</h3><br><p>创新药管线进入收获期：CXO、生物医药的行情持续性。<br><br> | 来源：<code>https://baoyu-shipin.com.cn
+</code></p><br><br><h3>北向资金单日净流入超150亿，降息后外资加速入场</h3><br><p>铁矿石价格反弹10%，铁矿上市公司盈利边际改善。<br><br> | 来源：<code>https://baoyu-tv.com.cn
+</code></p><br><br><h3>券商研究所扎堆调研车载雷达标的，激光雷达量产交付节奏</h3><br><p>全国祁连山生态保护修复完成，矿区全部恢复植被覆盖。<br><br> | 来源：<code>https://baoyu-wangzhan.com.cn
+</code></p><br><br><h3>游资顶级席位打板亨通光电5400万，海缆标的获热炒</h3><br><p>知名私募大手笔增持乳制品龙头，持仓占比达3.5%。<br><br> | 来源：<code>https://baoyuguanwang.com.cn
