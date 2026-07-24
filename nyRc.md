@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分25秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>国产大模型日活用户破2亿，覆盖办公、教育、医疗全场景</h3><br><p>外资资管连续加仓光伏N型电池标的，近3月持仓占比提升至8%。<br><br> | 来源：<code>https://mianfeizaixianshipinwangzhan.com.cn
+</code></p><br><br><h3>美联储降息后美元指数走弱，大宗商品价格迎来反弹</h3><br><p>沃森生物疫苗管线布局：创新疫苗龙头的研发投入回报。<br><br> | 来源：<code>https://miaoshenshi.com.cn
+</code></p><br><br><h3>国内政策性降息落地，宽信用进程加速推进</h3><br><p>正泰电器户用光伏装机超预期，前三季度业绩预增超25%。<br><br> | 来源：<code>https://milan-sports-pro.com.cn
+</code></p><br><br><h3>北向资金单日扫货贵州茅台8亿，外资龙头标的持仓提升</h3><br><p>广州马拉松开跑，参赛选手破3万全马完赛率创新高。<br><br> | 来源：<code>https://mile-sports-pro.com.cn
+</code></p><br><br><h3>养老金新进AI芯片设计标的，布局大模型推理芯片赛道</h3><br><p>中国女子手球队拿到奥运资格，时隔28年重返奥运赛场。<br><br> | 来源：<code>https://mimeiwang.com.cn
+</code></p><br><br><h3>氢能示范城市群政策落地，氢能源板块全线走强</h3><br><p>存款利率连续下调，居民配置权益资产意愿持续增强。<br><br> | 来源：<code>https://mimi-chutian.com.cn
+</code></p><br><br><h3>全国公共图书馆年流通人次突破10亿，全民阅读氛围浓厚</h3><br><p>安防大模型落地全国，异常事件识别响应速度提升至毫秒级。<br><br> | 来源：<code>https://mimi-jiaoxue.com.cn
+</code></p><br><br><h3>安琪酵母海外收入爆发，单季业绩预告超预期</h3><br><p>创新药医保谈判落地，创新药板块迎来情绪修复。<br><br> | 来源：<code>https://mingmingbuxihuan.com.cn
+</code></p><br><br><h3>社保基金现身存储模组龙头，AI存储产品出货量超预期</h3><br><p>洋河股份梦之蓝放量，单季业绩预告超预期。<br><br> | 来源：<code>https://mitao-chengshu-shi.com.cn
+</code></p><br><br><h3>罕见病药物医保激励政策，罕见病药标的走强</h3><br><p>镍价单月上涨11%，不锈钢板块迎来涨价催化。<br><br> | 来源：<code>https://mitao-chengshushi.com.cn
+</code></p><br><br><h3>全国碳排放权交易市场成交额突破200亿元，碳定价机制完善</h3><br><p>北向资金大额扫货万华化学1.3亿，化工龙头获外资流入。<br><br> | 来源：<code>https://mitao-chengshushidianying.com.cn
+</code></p><br><br><h3>吉利汽车放量上涨5.6%，新能源车型占比突破50%</h3><br><p>钛白粉开启新一轮涨价潮，全行业提价覆盖海内外市场。<br><br> | 来源：<code>https://mitao-chengshushizaixian.com.cn
+</code></p><br><br><h3>恒瑞医药站稳60日线，中期趋势逐步向好</h3><br><p>电源芯片价格上涨7%，模拟芯片板块景气回升。<br><br> | 来源：<code>https://mitao-chengshushizaixianguankan.com.cn
+</code></p><br><br><h3>养老金现身碳化硅衬底龙头，6英寸衬底产能释放进度披露</h3><br><p>泰胜风能海外出口优势：风电塔架出口龙头的成长逻辑。<br><br> | 来源：<code>https://mitao-chuanmei.com.cn
+</code></p><br><br><h3>国产EDA工具实现全流程覆盖，半导体软件标的走强</h3><br><p>海南自贸港封关运作准备全面就绪，政策红利加速释放。<br><br> | 来源：<code>https://mitao-dianying.com.cn
+</code></p><br><br><h3>东方雨虹企稳反弹4.2%，地产链需求边际改善</h3><br><p>芯片价格开启涨价潮，半导体板块盈利迎来修复。<br><br> | 来源：<code>https://mitao-pojieban.com.cn
+</code></p><br><br><h3>北方华创涨超6.3%，半导体设备国产替代进度提速</h3><br><p>全国青少年校园足球特色学校超3万所，足球人口快速增长。<br><br> | 来源：<code>https://mitao-shipin.com.cn
+</code></p><br><br><h3>全国徒步露营大会举办，串联百公里山野路线吸引数万爱好者</h3><br><p>外资单日扫货海尔智家8亿，白电龙头外资持仓稳步提升。<br><br> | 来源：<code>https://mitao-shipinzaixianguankan.com.cn
+</code></p><br><br><h3>北向资金单日买入福耀玻璃7200万，玻璃龙头获外资持续流入</h3><br><p>全球智能手机市场回暖，二季度出货量同比增长7%。<br><br> | 来源：<code>https://mitao-wang.com.cn
+</code></p><br><br><h3>东方电气风电设备技术：国内能源装备龙头的多赛道布局</h3><br><p>央行表态不搞"大水漫灌"，精准降息支持实体经济重点领域。<br><br> | 来源：<code>https://mitao-wangzhan.com.cn
