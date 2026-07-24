@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分29秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>广深铁路放量上涨3.1%，铁路客运收入回暖</h3><br><p>高管团队集体增持低空飞行器标的，合计增持超7000万。<br><br> | 来源：<code>https://tangxinchuanmei.com.cn
+</code></p><br><br><h3>美的集团全球化运营：家电龙头的海外市场拓展路径</h3><br><p>海绵城市建设推广，海绵城市板块集体上涨。<br><br> | 来源：<code>https://tangxinshipinzaixianguankan.com.cn
+</code></p><br><br><h3>产业资本集中增持锂电铜箔龙头，极薄铜箔技术获资本布局</h3><br><p>5年期LPR下调带动居民购房意愿回升，地产销售边际改善。<br><br> | 来源：<code>https://tanxiongluru.com.cn
+</code></p><br><br><h3>锦浪科技涨超7.0%，组串式逆变器出口高增</h3><br><p>医美行业合规化政策，头部医美标的拉升。<br><br> | 来源：<code>https://taohong-shipin.com.cn
+</code></p><br><br><h3>纯碱价格连续上涨12%，玻璃产业链成本端压力边际缓解</h3><br><p>智能制造政策升级，机器人自动化板块集体上涨。<br><br> | 来源：<code>https://taose-shipin.com.cn
+</code></p><br><br><h3>宁德时代商业模式拆解：动力电池龙头的护城河有多深</h3><br><p>头部机构组团到访医美耗材龙头，新品获批进度超预期。<br><br> | 来源：<code>https://taozishipinapp.com.cn
+</code></p><br><br><h3>中国平安权重护盘，指数关键点位的支撑作用凸显</h3><br><p>虚拟电厂政策试点扩容，电力信息化标的集体拉升。<br><br> | 来源：<code>https://tian-bo-tiyu.com.cn
+</code></p><br><br><h3>人民币汇率升值叠加美联储降息，航空造纸板块集体异动</h3><br><p>万华化学涨超3.5%，化工品价格企稳回升。<br><br> | 来源：<code>https://tian-mei-chuanmei.com.cn
+</code></p><br><br><h3>许继电气异动拉升4.2%，特高压订单持续落地</h3><br><p>动力电池回收管理办法出台，锂电回收板块全线异动。<br><br> | 来源：<code>https://tianmeichuanmei.com.cn
+</code></p><br><br><h3>创新药管线进入收获期：CXO、生物医药的行情持续性</h3><br><p>知名私募调研低空飞行器标的，eVTOL适航认证进度披露。<br><br> | 来源：<code>https://tiantang-manhua.com.cn
+</code></p><br><br><h3>智能制造政策升级，机器人自动化板块集体上涨</h3><br><p>云从科技人机协同大模型3.0发布，赋能人机交互场景。<br><br> | 来源：<code>https://tiantang91wang.cn
+</code></p><br><br><h3>万科A核心城市去化超预期，单季业绩预告环比改善</h3><br><p>赣锋锂业固态电池贡献增量，前三季度业绩预增70%。<br><br> | 来源：<code>https://tiantangjinman-zh.com.cn
+</code></p><br><br><h3>世界乒乓球锦标赛中国队包揽5金，延续国乒辉煌</h3><br><p>国内AI安全技术突破，大模型内容风控拦截率达99.9%。<br><br> | 来源：<code>https://tiantangjinman.com.cn
+</code></p><br><br><h3>国产现实题材电视剧收视领跑，多部作品斩获国际奖项</h3><br><p>北向资金大额扫货万华化学1.3亿，化工龙头获外资流入。<br><br> | 来源：<code>https://tiantangmanhuawang.com.cn
+</code></p><br><br><h3>保险资管扎堆调研航空发动机标的，量产交付进度引关注</h3><br><p>存款利率连续下调，居民配置权益资产意愿持续增强。<br><br> | 来源：<code>https://tiantian-dongman.com.cn
+</code></p><br><br><h3>天际股份放量上涨4.3%，锂电材料业务盈利修复</h3><br><p>央行下调再贷款利率，精准支持科技创新领域。<br><br> | 来源：<code>https://tiantian-shuang-yeye-shuang.com.cn
+</code></p><br><br><h3>阳光电源技术迭代能力：逆变器龙头的全球竞争力</h3><br><p>浪潮信息AI服务器产能：算力需求爆发下的业绩弹性。<br><br> | 来源：<code>https://tiantiandongmanwang.com.cn
+</code></p><br><br><h3>碳化硅衬底标的登陆科创板，6英寸衬底产能全球领先</h3><br><p>智能制造政策升级，机器人自动化板块集体上涨。<br><br> | 来源：<code>https://tiantianwang.com.cn
+</code></p><br><br><h3>全国体育旅游精品线路超千条，带动沿线经济发展</h3><br><p>全国社会体育指导员超300万人，指导群众科学健身。<br><br> | 来源：<code>https://tiantianzonghewang.com.cn
+</code></p><br><br><h3>黄山暑期单日客流破4万，山顶酒店提前半个月售罄</h3><br><p>保险资管扎堆调研汽车芯片标的，MCU芯片国产替代率突破50%。<br><br> | 来源：<code>https://tingting-se-tu.com.cn
