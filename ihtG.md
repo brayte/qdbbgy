@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分12秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>国内AI生成短视频用户破5亿，短视频行业迎来生产变革</h3><br><p>隆平高科种业业务爆发，前三季度业绩预增超50%。<br><br> | 来源：<code>https://meinuziwei.net.cn
+</code></p><br><br><h3>海绵城市建设推广，海绵城市板块集体上涨</h3><br><p>思源电气涨超4.5%，电网设备出口数据亮眼。<br><br> | 来源：<code>https://meiri-dasai-yandex-guan-wang.com.cn
+</code></p><br><br><h3>温氏股份管理优化：养殖行业底部的经营效率提升逻辑</h3><br><p>天合光能N型技术优势：光伏行业技术迭代下的领先地位。<br><br> | 来源：<code>https://meiri-dasai-yandex.com.cn
+</code></p><br><br><h3>2026年经济运行稳中向好，高质量发展迈出坚实步伐</h3><br><p>中芯国际管理层优势：半导体制造龙头的经营效率提升。<br><br> | 来源：<code>https://meiri-dasai-zamixian-guankan.com.cn
+</code></p><br><br><h3>中国射箭队世锦赛打破世界纪录，首次夺得团体金牌</h3><br><p>鸡肉价格单月上涨15%，白羽鸡板块盈利弹性释放。<br><br> | 来源：<code>https://meiri-dasai.com.cn
+</code></p><br><br><h3>科达利结构件精密制造：锂电池结构件龙头的全球份额</h3><br><p>地方国资战略入股种业龙头，助力生物育种商业化落地。<br><br> | 来源：<code>https://meiri-dasaizaixianguankan.com.cn
+</code></p><br><br><h3>加拿大经济保持增长，能源和科技产业双驱动</h3><br><p>国产历史剧细节考究，多部作品成为全网热议文化现象。<br><br> | 来源：<code>https://meirihanou.com.cn
+</code></p><br><br><h3>美国通胀回落至2.5%，为后续进一步降息打开空间</h3><br><p>主线行情里不要轻易切换赛道：拿住核心标的才能吃到大行情。<br><br> | 来源：<code>https://mengciyuan.com.cn
+</code></p><br><br><h3>隔膜价格小幅上涨3%，隔膜龙头盈利迎来修复</h3><br><p>山东"三孔"景区暑期接待游客超200万人次，传统文化游升温。<br><br> | 来源：<code>https://mengnaiaihua.net.cn
+</code></p><br><br><h3>广汽集团埃安盈利转正，前三季度业绩预增超45%</h3><br><p>西安大唐不夜城暑期日均客流超20万，沉浸式文旅成爆款。<br><br> | 来源：<code>https://mengnandanshengji.net.cn
+</code></p><br><br><h3>全国抽水蓄能电站装机容量突破8000万千瓦，储能能力提升</h3><br><p>亿纬锂能涨超6%，储能业务新增订单持续落地。<br><br> | 来源：<code>https://mengniangbaike.com.cn
+</code></p><br><br><h3>多地推出夜间文旅补贴，商户夜间经营成本下降30%</h3><br><p>草原生态保护政策，草牧业板块全线拉升。<br><br> | 来源：<code>https://mengruoyu.com.cn
+</code></p><br><br><h3>1年期MLF利率下调带动全市场利率下行，债券牛市延续</h3><br><p>五粮液品牌与渠道优势：浓香型白酒龙头的护城河解析。<br><br> | 来源：<code>https://mi-taoshipin.com.cn
+</code></p><br><br><h3>贵州建工异动拉升3.1%，区域基建业务高增</h3><br><p>企业中长期贷款增速回升，宽信用效果逐步显现。<br><br> | 来源：<code>https://mianfei-huangyou.com.cn
+</code></p><br><br><h3>欧盟第21轮对俄制裁方案通过，覆盖能源、金融多领域</h3><br><p>中国电竞战队斩获英雄联盟S14全球总决赛冠军。<br><br> | 来源：<code>https://mianfei-kan-pian.com.cn
+</code></p><br><br><h3>万科A异动拉升，地产链反弹的关键位与风控思路</h3><br><p>北向资金单日买入海康威视3.2亿，AI安防龙头获外资流入。<br><br> | 来源：<code>https://mianfei-kanpian.com.cn
+</code></p><br><br><h3>外资单日大额买入宁德时代25亿，动力电池龙头获持续流入</h3><br><p>正邦科技债务重组：养殖企业困境反转的案例解析。<br><br> | 来源：<code>https://mianfei-yiji-wangzhan-mianfei.com.cn
+</code></p><br><br><h3>宝钢股份涨超3.1%，板材价格企稳回升</h3><br><p>华为盘古大模型行业落地，工业AI板块持续升温。<br><br> | 来源：<code>https://mianfei-yijiwangzhan.com.cn
+</code></p><br><br><h3>上半年全国社会物流总额同比增长5.6%，物流运行效率提升</h3><br><p>海尔智家全球化品牌布局：多品牌矩阵下的全球份额扩张。<br><br> | 来源：<code>https://mianfei-yijiwangzhanmianfei.com.cn
+</code></p><br><br><h3>LPR非对称下调，银行净息差压力边际缓解</h3><br><p>全国船舶排放控制区扩大，海运污染减排成效突出。<br><br> | 来源：<code>https://mianfei91wangye.com.cn
