@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分27秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>瑞典经济走出负增长，科技产业拉动复苏</h3><br><p>恒力石化异动拉升3.8%，炼化行业盈利边际改善。<br><br> | 来源：<code>https://pzhan-shipin.com.cn
+</code></p><br><br><h3>两融余额创阶段新高，券商杠杆业务标的异动</h3><br><p>药明康德海外订单爆发，前三季度业绩预增超60%。<br><br> | 来源：<code>https://qiangjian-xinwen.com.cn
+</code></p><br><br><h3>金融大模型赋能投研，AI研报生成效率提升5倍</h3><br><p>全国PM2.5平均浓度同比下降8%，空气质量优良天数比率达87.5%。<br><br> | 来源：<code>https://qidonghua.com.cn
+</code></p><br><br><h3>中兴通讯涨超4%，6G技术研发进度超市场预期</h3><br><p>恩捷股份隔膜份额提升，单季业绩预告超预期。<br><br> | 来源：<code>https://qiezi-shipin-wu.com.cn
+</code></p><br><br><h3>北交所改革政策落地，北交所概念股集体走强</h3><br><p>外资资管连续加仓光伏N型电池标的，近3月持仓占比提升至8%。<br><br> | 来源：<code>https://qiezi-shipin.cn
+</code></p><br><br><h3>产业基金组团调研后集中增持氢能储运龙头，合计投入超5亿</h3><br><p>机构资金集中买入海螺水泥7300万，水泥龙头获机构抱团。<br><br> | 来源：<code>https://qiezishipinzaixianguankan.cn
+</code></p><br><br><h3>牧原股份疫病防控能力：生猪养殖龙头的核心经营壁垒</h3><br><p>全国急救培训覆盖超亿人次，公共场所AED设备配置率达90%。<br><br> | 来源：<code>https://qiezivideos.cn
+</code></p><br><br><h3>大模型在电商领域应用，AI生成商品详情页效率提升10倍</h3><br><p>光伏玻璃价格单月上涨8%，玻璃龙头盈利弹性大幅释放。<br><br> | 来源：<code>https://qingqingcao-shipin.com.cn
+</code></p><br><br><h3>1年期LPR下调10BP，实体经济融资成本进一步下行</h3><br><p>企业中长期贷款增速回升，宽信用效果逐步显现。<br><br> | 来源：<code>https://qingqingcao.com.cn
+</code></p><br><br><h3>美联储降息周期开启，北向资金单周净流入超300亿</h3><br><p>中部地区崛起新政策落地，打造先进制造业增长极。<br><br> | 来源：<code>https://qinwenjiejie.net.cn
+</code></p><br><br><h3>外资机构集中调研种业龙头，转基因商业化落地节奏披露</h3><br><p>数字中国建设新规划，数字经济标的集体异动。<br><br> | 来源：<code>https://qitianda-xing.com.cn
+</code></p><br><br><h3>量子通信标的启动申购，干线网络建设订单同比翻倍</h3><br><p>招商银行股价修复，银行板块高股息属性获资金青睐。<br><br> | 来源：<code>https://qiu-xia-yingyuan.com.cn
+</code></p><br><br><h3>北向资金举牌工业机器人龙头，外资持仓创历史新高</h3><br><p>全国碳捕集利用与封存项目年处理能力突破1500万吨。<br><br> | 来源：<code>https://qiyiguo-vip-new.com
+</code></p><br><br><h3>农药价格开启新一轮涨价，农化板块盈利弹性释放</h3><br><p>水产品价格集体上涨，水产养殖板块迎来涨价催化。<br><br> | 来源：<code>https://rcstqm.cn
+</code></p><br><br><h3>东方盛虹放量上涨3.6%，EVA树脂需求持续向好</h3><br><p>工业硅价格触底反弹15%，光伏硅料成本端压力下降。<br><br> | 来源：<code>https://re-jiujiu.com.cn
+</code></p><br><br><h3>北向资金连续增持核电设备龙头，近1月持仓增幅超25%</h3><br><p>外资持续买入科大讯飞，AI龙头获外资持仓占比突破3%。<br><br> | 来源：<code>https://reg-bonus-vip.com.cn
+</code></p><br><br><h3>社保基金新进生物育种标的，布局农业科技长期成长</h3><br><p>游资顶级席位打板沃森生物9800万，疫苗标的获热炒。<br><br> | 来源：<code>https://ren-qi.com.cn
+</code></p><br><br><h3>消费券集中发放，大消费板块迎来情绪催化</h3><br><p>头部券商调研固态电池标的，下一代技术落地时间表曝光。<br><br> | 来源：<code>https://ren-shan-jiao.com.cn
+</code></p><br><br><h3>央行下调SLF利率，货币政策宽松取向进一步明确</h3><br><p>北向资金举牌人形机器人标的，持股比例首次突破5%红线。<br><br> | 来源：<code>https://renqidonghua.com.cn
+</code></p><br><br><h3>武当山暑期游客量突破120万人次，道教文化游持续升温</h3><br><p>招商公路涨超2.4%，公路运营龙头价值凸显。<br><br> | 来源：<code>https://renqilieren.com.cn
