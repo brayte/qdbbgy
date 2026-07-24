@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分02秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>全国疫苗接种覆盖率保持99%以上，免疫规划覆盖所有适龄人群</h3><br><p>全国夜间经济规模上半年突破18万亿元，成为消费新增长点。<br><br> | 来源：<code>https://sanquyi.com.cn
+</code></p><br><br><h3>市场永远不缺机会，缺的是耐心等待属于自己的机会</h3><br><p>宝钢股份企稳回升，钢铁行业盈利预期边际改善。<br><br> | 来源：<code>https://se-duoduo.cn
+</code></p><br><br><h3>地方国资战略入股种业龙头，助力生物育种商业化落地</h3><br><p>哈尔滨暑期游热度反超冬季，冰雪大世界夏季版开园迎客。<br><br> | 来源：<code>https://se-hua-tang.com.cn
+</code></p><br><br><h3>国内低空文旅项目升温，热气球、滑翔伞体验订单同比暴涨</h3><br><p>产业基金组团调研后集中增持光模块企业，合计投入超10亿。<br><br> | 来源：<code>https://se-huatang.com.cn
+</code></p><br><br><h3>西藏暑期游客量突破200万人次，高原旅游热度创新高</h3><br><p>北京国际铁人三项赛举办，吸引全球千名选手参赛。<br><br> | 来源：<code>https://se-se-xiaoshuo.com.cn
+</code></p><br><br><h3>多地景区推出“一票通”联票，覆盖周边十余景点让利游客</h3><br><p>杭州西湖暑期日均客流超30万，智慧景区系统保障游览秩序。<br><br> | 来源：<code>https://se-zhibo.com.cn
+</code></p><br><br><h3>白酒批价连续上涨，高端白酒板块盈利弹性释放</h3><br><p>全国骑行赛事超千场，骑行运动参与人数破5000万。<br><br> | 来源：<code>https://sedaohang.com.cn
+</code></p><br><br><h3>宇通客车海外出口翻倍，前三季度业绩预增超50%</h3><br><p>海大集团涨超3.5%，饲料业务市占率稳步提升。<br><br> | 来源：<code>https://sehua-tang.com.cn
+</code></p><br><br><h3>养老金新进光伏逆变器标的，海外市占率提升获长期配置</h3><br><p>全国重点海域入海排污口整治完成，海洋污染源头管控加强。<br><br> | 来源：<code>https://sejishikong.com.cn
+</code></p><br><br><h3>深股通席位单日买入金龙汽车4300万，客车标的获增持</h3><br><p>赛力斯华为车型销量破10万，单季业绩减亏超预期。<br><br> | 来源：<code>https://selunyan.com.cn
+</code></p><br><br><h3>江特电机锂矿资源优势：云母提锂龙头的盈利弹性解析</h3><br><p>河北建工涨超2.7%，雄安新区基建订单饱满。<br><br> | 来源：<code>https://semanwu.com.cn
+</code></p><br><br><h3>保险资管举牌绿电运营标的，长期配置价值获机构认可</h3><br><p>企业贷款利率创历史新低，制造业投资意愿有望回升。<br><br> | 来源：<code>https://seqingyouxi.com.cn
+</code></p><br><br><h3>电力辅助服务市场扩容，储能运营标的全线异动</h3><br><p>机构+北向资金合力买入比亚迪9亿，整车龙头获资金认可。<br><br> | 来源：<code>https://sesemanhua.com.cn
+</code></p><br><br><h3>皖通高速涨超2.1%，安徽区域路网盈利稳健</h3><br><p>机构席位大额买入拓普集团9200万，零部件龙头获长线布局。<br><br> | 来源：<code>https://sesewangzhan.cn
+</code></p><br><br><h3>全国学生体质健康达标率提升至92%，青少年身体素质增强</h3><br><p>闻泰科技ODM+半导体双轮驱动：平台型企业的成长逻辑。<br><br> | 来源：<code>https://seseyouxi.com.cn
+</code></p><br><br><h3>大模型在农业领域应用，病虫害识别准确率超97%</h3><br><p>超300家机构扎堆调研AI算力龙头，核心业务数据首次披露。<br><br> | 来源：<code>https://sezaixian.cn
+</code></p><br><br><h3>机构资金集中买入牧原股份2.5亿，养殖龙头获机构抱团</h3><br><p>全国学生体质健康达标率提升至92%，青少年身体素质增强。<br><br> | 来源：<code>https://sezhongseluntan.cn
+</code></p><br><br><h3>保利发展土储优势：核心城市优质土储的长期价值释放</h3><br><p>全国营商环境评价排名发布，一线城市整体进入全球第一梯队。<br><br> | 来源：<code>https://shang-yuan.com.cn
+</code></p><br><br><h3>贵州建工异动拉升3.1%，区域基建业务高增</h3><br><p>汽车下乡补贴政策出台，自主车企标的全线上涨。<br><br> | 来源：<code>https://shankou-zhu-li.com.cn
+</code></p><br><br><h3>西藏暑期游热度创新高，进藏游客人次同比增长130%</h3><br><p>汉缆股份涨超3.9%，电网投资带动订单增长。<br><br> | 来源：<code>https://shanliangdenumishu.com.cn
