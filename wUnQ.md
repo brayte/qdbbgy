@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时06分57秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>广州珠江夜游暑期航班加密，日均接待游客超5万人次</h3><br><p>中国五子连珠队世界杯包揽全部金牌，优势项目无人能敌。<br><br> | 来源：<code>https://hq-xk-yule.com.cn
+</code></p><br><br><h3>梅花生物氨基酸价格反弹，前三季度业绩预增超40%</h3><br><p>央行表态加大逆周期调节，后续仍有降准降息空间。<br><br> | 来源：<code>https://hth-official-vip.com.cn
+</code></p><br><br><h3>浪潮信息AI服务器产能：国内AI服务器龙头的份额优势</h3><br><p>思源电气电网设备优势：民营电网设备龙头的技术积累。<br><br> | 来源：<code>https://http91com.cn
+</code></p><br><br><h3>北方稀土稀土量价齐升，前三季度业绩预增超50%</h3><br><p>社保基金现身存储模组龙头，AI存储产品出货量超预期。<br><br> | 来源：<code>https://https17ccom.com.cn
+</code></p><br><br><h3>机构席位大额买入东方电缆1.8亿，海缆龙头获长线资金布局</h3><br><p>高管团队集体增持工业AI龙头，合计增持金额超2.3亿。<br><br> | 来源：<code>https://httpswww17ccom.com.cn
+</code></p><br><br><h3>游资知名席位联手买入登海种业5600万，种业标的获追捧</h3><br><p>洽洽食品坚果品类拓展：传统炒货企业的成长第二曲线。<br><br> | 来源：<code>https://httpswww91com.cn
+</code></p><br><br><h3>QFII集中调研医药流通龙头，院外市场拓展节奏披露</h3><br><p>医美行业合规化政策，头部医美标的拉升。<br><br> | 来源：<code>https://httpwww17c.com.cn
+</code></p><br><br><h3>钠离子电池材料价格上涨8%，钠电池产业链盈利优化</h3><br><p>低空经济龙头登陆创业板，eVTOL适航认证进度成核心看点。<br><br> | 来源：<code>https://httpwww17ccom.com.cn
+</code></p><br><br><h3>端侧大模型普及，旗舰手机本地运行70B参数大模型</h3><br><p>天赐材料异动拉升4.9%，电解液龙头成本优势凸显。<br><br> | 来源：<code>https://huahualove.org.cn
+</code></p><br><br><h3>广西交投旗下标的异动，东盟基建合作持续深化</h3><br><p>全球可再生能源投资首次超过化石能源，能源转型拐点到来。<br><br> | 来源：<code>https://huan-qi-yi-zu.com.cn
+</code></p><br><br><h3>中印经贸合作回暖，双边贸易额同比增长15%</h3><br><p>外资资管连续加仓跨境支付标的，近3月持仓占比提升至6%。<br><br> | 来源：<code>https://huang-jiujiu.com.cn
+</code></p><br><br><h3>威海暑期滨海游火爆，国际海水浴场日均客流超10万</h3><br><p>通威股份硅料盈利修复，单季业绩预告环比大增。<br><br> | 来源：<code>https://huang-mantiantang.com.cn
+</code></p><br><br><h3>百度智能云大模型平台开放，百万开发者接入生态</h3><br><p>QFII集中调研医药流通龙头，院外市场拓展节奏披露。<br><br> | 来源：<code>https://huang-wed.cn
+</code></p><br><br><h3>油气增储上产政策，油气设备板块集体上涨</h3><br><p>定向降准支持县域金融机构，乡村振兴板块迎来利好。<br><br> | 来源：<code>https://huang-you.com.cn
+</code></p><br><br><h3>洽洽食品坚果品类拓展：传统炒货企业的成长第二曲线</h3><br><p>城市更新行动政策，城市更新板块走强。<br><br> | 来源：<code>https://huang-youdaquan.com.cn
+</code></p><br><br><h3>海天味业涨超3.5%，调味品行业需求复苏</h3><br><p>2026年美丽中国建设成效显著，绿色发展底色更加鲜明。<br><br> | 来源：<code>https://huanggua-shipin-app.com.cn
+</code></p><br><br><h3>游资顶级席位联手买入中芯国际7亿，半导体龙头获热捧</h3><br><p>消费电子复苏周期：苹果链、安卓链的需求回暖信号。<br><br> | 来源：<code>https://huanggua-shipin.cn
+</code></p><br><br><h3>梅花生物氨基酸优势：生物发酵龙头的成本与技术壁垒</h3><br><p>实控人兜底式增持固态电池企业，员工响应参与比例超90%。<br><br> | 来源：<code>https://huanggua-shipin.com.cn
+</code></p><br><br><h3>飞天茅台批价突破2900元，白酒龙头盈利超预期</h3><br><p>许继电气异动拉升4.2%，特高压订单持续落地。<br><br> | 来源：<code>https://huanggua-shipinxiazai.com.cn
+</code></p><br><br><h3>产业资本连续增持智能电网标的，特高压产业链获资本布局</h3><br><p>海外资管组团调研光伏支架标的，跟踪支架海外渗透率提升。<br><br> | 来源：<code>https://huanggua-wangzhan.com.cn
