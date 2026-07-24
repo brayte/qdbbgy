@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时06分52秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>大股东耗资4.5亿增持碳化硅衬底龙头，助力6英寸产能扩张</h3><br><p>钠离子电池材料价格上涨8%，钠电池产业链盈利优化。<br><br> | 来源：<code>https://zh-luolita.com.cn
+</code></p><br><br><h3>全球5G用户突破30亿，中国市场占比超一半</h3><br><p>头部机构组团到访冷链物流标的，生鲜配送网络覆盖披露。<br><br> | 来源：<code>https://zh-luotimeinu.com.cn
+</code></p><br><br><h3>北向资金大幅增持比亚迪，AH股同步获外资加仓</h3><br><p>土耳其经济通胀回落至30%，金融市场逐步稳定。<br><br> | 来源：<code>https://zh-madoushipin.com.cn
+</code></p><br><br><h3>上半年全国集成电路产量同比增长18%，产业链自主可控推进</h3><br><p>桂林山水暑期游客量突破400万人次，经典景区持续焕发活力。<br><br> | 来源：<code>https://zh-meiri-dasai.com.cn
+</code></p><br><br><h3>实控人承诺12个月内不减持智慧矿山标的，稳定市场预期</h3><br><p>地方国资战略入股汽车轻量化标的，助力一体化压铸产能释放。<br><br> | 来源：<code>https://zh-mianfeidianying.com.cn
+</code></p><br><br><h3>海南自贸港封关运作倒计时，海南本地股全线异动</h3><br><p>超170家机构到访PCB龙头，AI服务器板订单同比翻倍。<br><br> | 来源：<code>https://zh-mitao-yingshi.com.cn
+</code></p><br><br><h3>教育改革与人才发展（100条）</h3><br><p>超240家机构到访氢能燃料电池标的，商用车推广数据公开。<br><br> | 来源：<code>https://zh-mitaochuanmei.com.cn
+</code></p><br><br><h3>宁沪高速优质路网资产：长三角公路龙头的长期配置价值</h3><br><p>铂价上涨10%，燃料电池催化剂板块迎来涨价催化。<br><br> | 来源：<code>https://zh-mitaoshipin.com.cn
+</code></p><br><br><h3>国内AI生成内容监管细则落地，AIGC内容标注要求全面实施</h3><br><p>全国足球场数量超20万个，人均足球场地面积达1.8平方米。<br><br> | 来源：<code>https://zh-mitaotv.com.cn
+</code></p><br><br><h3>三亚暑期酒店预订量同比增长35%，滨海度假持续火热</h3><br><p>安徽建工涨超3.6%，长三角基建订单持续落地。<br><br> | 来源：<code>https://zh-mitaowangzhan.com.cn
+</code></p><br><br><h3>上海建工城市更新布局：上海本地基建龙头的区域优势</h3><br><p>全国青少年体育赛事覆盖所有项目，参赛人次突破千万。<br><br> | 来源：<code>https://zh-mitaoyingshi.com.cn
+</code></p><br><br><h3>中际旭创客户优势：全球云厂商的深度绑定合作关系</h3><br><p>液态奶价格上涨3%，乳制品板块迎来涨价催化。<br><br> | 来源：<code>https://zh-mitaozaixian.com.cn
+</code></p><br><br><h3>券商研究所扎堆调研虚拟电厂标的，订单爆发式增长披露</h3><br><p>北向资金大额扫货赣锋锂业2.6亿，锂矿龙头获外资流入。<br><br> | 来源：<code>https://zh-miya.com.cn
+</code></p><br><br><h3>实控人承诺6个月内不减持机器人控制器标的，稳定股价</h3><br><p>中澳关系持续回暖，双边贸易额同比增长12%。<br><br> | 来源：<code>https://zh-mogushipin.com.cn
+</code></p><br><br><h3>公募基金集中调研储能温控龙头，海外客户拓展引关注</h3><br><p>全国职业体育俱乐部数量超2000家，联赛体系覆盖全项目。<br><br> | 来源：<code>https://zh-nan-tong-wang.com.cn
+</code></p><br><br><h3>动力电池级碳酸锂报价单日上涨2000元/吨，产业链回暖信号显现</h3><br><p>国产悬疑剧全网播放量突破300亿，现实题材作品广受好评。<br><br> | 来源：<code>https://zh-ntr.com.cn
+</code></p><br><br><h3>长沙五一广场暑期夜间客流超25万，文和友等网红店排号超千桌</h3><br><p>中科院紫东太初大模型2.0发布，全模态能力国际领先。<br><br> | 来源：<code>https://zh-panjinlian.com.cn
+</code></p><br><br><h3>东方财富互联网券商优势：流量变现的长期成长空间</h3><br><p>大模型轻量化部署方案成熟，中小企业接入成本下降90%。<br><br> | 来源：<code>https://zh-pipi-yingyuan.com.cn
+</code></p><br><br><h3>游戏版号常态化发放，游戏板块持续异动</h3><br><p>全国绿色物流示范城市创建，快递电动化率达95%。<br><br> | 来源：<code>https://zh-pipiyingyuan.com.cn
+</code></p><br><br><h3>5年期LPR超预期下调，地产链迎来全面行情催化</h3><br><p>公募基金集中调研储能温控龙头，海外客户拓展引关注。<br><br> | 来源：<code>https://zh-pochu.com.cn
