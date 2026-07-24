@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时06分55秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>全国非遗文旅体验点破2000个，非遗游成暑期新潮流</h3><br><p>长电科技先进封装技术：全球封测龙头的份额提升逻辑。<br><br> | 来源：<code>https://cn-ab-tiyu.com.cn
+</code></p><br><br><h3>基金公司集体到访人形电机龙头，力矩电机产能释放数据</h3><br><p>OpenAI发布多模态大模型，AI应用板块集体异动。<br><br> | 来源：<code>https://cn-bandao-sports.com.cn
+</code></p><br><br><h3>北向资金连续加仓隆基绿能，光伏龙头获外资长线布局</h3><br><p>闻泰科技ODM+半导体双轮驱动：平台型企业的成长逻辑。<br><br> | 来源：<code>https://cn-bb-tiyu.com.cn
+</code></p><br><br><h3>实控人邀约收购家电出海龙头，溢价30%发起全面要约</h3><br><p>中国中铁放量上涨3.0%，一带一路订单同比翻倍。<br><br> | 来源：<code>https://cn-biyi-sports.com.cn
+</code></p><br><br><h3>中国神华煤炭量价齐升，前三季度业绩预增超15%</h3><br><p>头部机构组团到访中药创新药标的，医保谈判结果超预期。<br><br> | 来源：<code>https://cn-btiyu-web.com.cn
+</code></p><br><br><h3>全国戒烟服务门诊覆盖所有三甲医院，吸烟率持续下降</h3><br><p>机构+北向合力买入东方雨虹7700万，建材龙头获资金布局。<br><br> | 来源：<code>https://cn-chengrenmanhua.com.cn
+</code></p><br><br><h3>量子信息产业规划发布，量子通信标的全线拉升</h3><br><p>长安汽车新能源盈利转正，单季净利润同比增200%。<br><br> | 来源：<code>https://cn-haijiaoshequ.com.cn
+</code></p><br><br><h3>地方国资战略入股卫星互联网标的，助力星座组网建设</h3><br><p>中国网球选手首次夺得大满贯单打冠军，创造历史突破。<br><br> | 来源：<code>https://cn-haohaidong.com.cn
+</code></p><br><br><h3>全国公积金贷款政策优化，支持居民合理住房需求</h3><br><p>5年期LPR超预期下调，地产链迎来全面行情催化。<br><br> | 来源：<code>https://cn-jb-tiyu-web.com.cn
+</code></p><br><br><h3>上半年全国财政收入同比增长3.7%，民生支出占比超70%</h3><br><p>房贷利率下限进一步放宽，刚需购房成本大幅下降。<br><br> | 来源：<code>https://cn-jiabosports.com.cn
+</code></p><br><br><h3>全国足球场数量超20万个，人均足球场地面积达1.8平方米</h3><br><p>蔚来汽车放量上涨8.8%，换电网络覆盖持续扩大。<br><br> | 来源：<code>https://cn-kaiyun-esports.com.cn
+</code></p><br><br><h3>成渝双城经济圈政策加码，成渝板块标的全线上涨</h3><br><p>长城汽车品类创新能力：坦克+欧拉的产品差异化逻辑。<br><br> | 来源：<code>https://cn-ls-tiyu.com.cn
+</code></p><br><br><h3>登海种业玉米种子需求超预期，单季业绩预告超预期</h3><br><p>煤层气开发利用政策，煤层气标的全线拉升。<br><br> | 来源：<code>https://cn-ob-tiyu.com.cn
+</code></p><br><br><h3>外资单日扫货招商银行10亿，银行龙头外资持仓稳步提升</h3><br><p>四川成渝放量上涨2.3%，区域路网业务持续向好。<br><br> | 来源：<code>https://cn-pb-tiyu.com.cn
+</code></p><br><br><h3>全国体育消费规模上半年突破8000亿元，运动装备销量暴涨</h3><br><p>北向资金连续加仓东方财富，互联网券商获外资持续流入。<br><br> | 来源：<code>https://cn-pipi-yingyuan.com.cn
+</code></p><br><br><h3>被动元器件价格集体上涨，电子板块盈利边际改善</h3><br><p>MLCC价格单月上涨5%，电容龙头盈利弹性释放。<br><br> | 来源：<code>https://cn-pipiyingyuan.com.cn
+</code></p><br><br><h3>招商银行放量上涨3.0%，净息差边际企稳</h3><br><p>国内AI人才培养体系完善，高校新增AI相关专业超千个。<br><br> | 来源：<code>https://cn-qingyule.com.cn
+</code></p><br><br><h3>实控人承诺6个月内不减持机器人控制器标的，稳定股价</h3><br><p>QFII集中调研国产EDA企业，全流程工具突破引关注。<br><br> | 来源：<code>https://cn-qiusu-vip.com.cn
+</code></p><br><br><h3>电力辅助服务市场扩容，储能运营标的全线异动</h3><br><p>实控人溢价20%增持氢能龙头，传递公司价值被低估信号。<br><br> | 来源：<code>https://cn-qy-tiyu.com.cn
+</code></p><br><br><h3>全国公立医院绩效考核连续5年提升，医疗服务质量持续改善</h3><br><p>超150家机构到访工业机器人标的，产能利用率突破90%。<br><br> | 来源：<code>https://cn-wd-tiyu.com.cn
