@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 16时19分40秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>北向资金单日买入中国神华1.5亿，高股息龙头获外资持续流入</h3><br><p>外资单日加仓三一重工12亿，工程机械龙头获外资回流。<br><br> | 来源：<code>mlxtf.cn
+</code></p><br><br><h3>平遥古城暑期推出实景演出，夜间场次上座率超100%</h3><br><p>华域汽车汽车零部件平台：国内汽车零部件龙头的价值。<br><br> | 来源：<code>tupianqiang.com
+</code></p><br><br><h3>秦始皇陵兵马俑新坑发掘启动，将揭开秦代军阵更多秘密</h3><br><p>房贷利率下限进一步放宽，刚需购房成本大幅下降。<br><br> | 来源：<code>hsronghua.com
+</code></p><br><br><h3>山西汾酒渠道下沉：清香型白酒的全国化深度渗透逻辑</h3><br><p>AI大模型企业启动申购，ToB付费转化率超行业平均水平。<br><br> | 来源：<code>dygs2b.com
+</code></p><br><br><h3>海缆价格上调5%，海缆龙头订单盈利弹性提升</h3><br><p>铁矿石价格反弹10%，铁矿上市公司盈利边际改善。<br><br> | 来源：<code>s9tattoo.com
+</code></p><br><br><h3>保险资管扎堆调研养老产业标的，养老社区入住率数据披露</h3><br><p>养老金现身创新器械标的，海外FDA获批进度超预期。<br><br> | 来源：<code>yilianyoumeng.com
+</code></p><br><br><h3>国产EDA工具实现全流程覆盖，半导体软件标的走强</h3><br><p>5年期LPR下调15BP，地产链估值修复行情延续。<br><br> | 来源：<code>www.zhongyichufang.cn
+</code></p><br><br><h3>国内AI安全技术突破，大模型内容风控拦截率达99.9%</h3><br><p>长三角一体化发展新规划发布，打造世界级产业集群。<br><br> | 来源：<code>www.muzhien.cn
+</code></p><br><br><h3>青岛国际啤酒节开幕，首日吸引客流超30万营收破亿</h3><br><p>智慧景区全覆盖，全国5A景区全部实现刷脸入园智能导览。<br><br> | 来源：<code>www.jiezhishan.cn
+</code></p><br><br><h3>实控人溢价25%增持电力现货交易标的，传递价值低估信号</h3><br><p>调味品开启集体涨价，食品板块盈利迎来修复。<br><br> | 来源：<code>www.qinjin365.cn
+</code></p><br><br><h3>中国男足世预赛1-0击败韩国，提前锁定2026世界杯出线名额</h3><br><p>央行降准降息组合拳落地，A股市场迎来全面估值修复。<br><br> | 来源：<code>www.siqiyes.cn
+</code></p><br><br><h3>全国重点海域入海排污口整治完成，海洋污染源头管控加强</h3><br><p>实控人兜底式增持AI大模型标的，员工参与规模超预期。<br><br> | 来源：<code>www.siqixue.cn
+</code></p><br><br><h3>全国健身气功交流大赛举办，覆盖超百万中老年爱好者</h3><br><p>美联储降息25BP，中概股集体暴涨带动A股联动。<br><br> | 来源：<code>www.cunyinbao.cn
+</code></p><br><br><h3>芬兰经济走出衰退，绿色技术产业拉动复苏</h3><br><p>贵州茅台站稳1720元，批价回升带动板块情绪。<br><br> | 来源：<code>www.iamz.cn
+</code></p><br><br><h3>文旅部推出100条乡村精品线路，带动县域文旅消费</h3><br><p>大模型在航空领域应用，飞行模拟训练效率提升30%。<br><br> | 来源：<code>www.yifanwu.cn
+</code></p><br><br><h3>散户最容易踩的坑：涨一点就卖，跌一点就割，最后两头亏</h3><br><p>爱尔兰经济保持稳定增长，高科技产业优势凸显。<br><br> | 来源：<code>www.michaelyang.cn
+</code></p><br><br><h3>陕西煤业资源禀赋优势：煤炭龙头的业绩稳定性解析</h3><br><p>地方国资战略入股种业龙头，助力生物育种商业化落地。<br><br> | 来源：<code>www.bengcuan.cn
+</code></p><br><br><h3>全球氢能产业投资突破5000亿美元，商业化进程加速</h3><br><p>钢材价格单月上涨7%，钢铁板块迎来产品涨价催化。<br><br> | 来源：<code>www.zn-edu.cn
+</code></p><br><br><h3>数字人民币核心标的启动申购，线下场景覆盖突破亿级用户</h3><br><p>中国女子自行车队世锦赛场地赛夺冠，实现金牌突破。<br><br> | 来源：<code>www.imrok.com.cn
+</code></p><br><br><h3>全国快递包装绿色转型推进，可降解材料使用率达85%</h3><br><p>北方稀土异动拉升5.4%，稀土产品价格反弹。<br><br> | 来源：<code>www.shutaotc.cn
