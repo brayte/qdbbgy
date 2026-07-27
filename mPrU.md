@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月28日 01时30分24秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>机构资金联手买入洽洽食品5800万，食品龙头获机构抱团</h3><br><p>医疗大模型通过三类医疗器械认证，辅助诊断准确率超98%。<br><br> | 来源：<code>www.thepodala.com
+</code></p><br><br><h3>保险资管连续增持AI安防龙头，海外订单高增获机构认可</h3><br><p>全国氢能产业示范城市群落地，燃料电池汽车推广超12万辆。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>糖果产品价格上调6%，休闲食品全产业链景气回升</h3><br><p>河南卫视中国节日系列节目全网播放量突破200亿次。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>东盟经济一体化进程加速，2026年区域内贸易占比升至35%</h3><br><p>宁德时代异动拉升6.2%，海外储能项目持续落地。<br><br> | 来源：<code>www.hnltjy.com
+</code></p><br><br><h3>杭州亚运会场馆全面开放，年接待市民游客超千万人次</h3><br><p>全国PM2.5平均浓度同比下降8%，空气质量优良天数比率达87.5%。<br><br> | 来源：<code>www.www.gmgs.com.cn
+</code></p><br><br><h3>煤炭价格企稳回升8%，煤炭高股息标的盈利稳定</h3><br><p>财政部出台减税降费新政，全年为企业减负超1.2万亿元。<br><br> | 来源：<code>www.tiantian8.com
+</code></p><br><br><h3>保险资管扎堆调研绿电运营标的，电价弹性空间引热议</h3><br><p>煤层气开发利用政策，煤层气标的全线拉升。<br><br> | 来源：<code>www.qianfangdiy.cn
+</code></p><br><br><h3>国内剧本杀文旅项目破千个，沉浸式文旅体验成新风口</h3><br><p>机构专用席位净买入韦尔股份1.5亿，CIS芯片龙头获长线加仓。<br><br> | 来源：<code>www.79lr.com
+</code></p><br><br><h3>全国足球场数量超20万个，人均足球场地面积达1.8平方米</h3><br><p>酸奶产品价格上调4%，乳业细分板块盈利提升。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>投资是认知的变现：你永远赚不到超出自己认知范围的钱</h3><br><p>梅花生物异动拉升3.1%，氨基酸产品价格反弹。<br><br> | 来源：<code>www.jyylj.com
+</code></p><br><br><h3>丹麦经济稳健增长，风电产业全球领先</h3><br><p>全国公立医院绩效考核连续5年提升，医疗服务质量持续改善。<br><br> | 来源：<code>www.idmcinc.com
+</code></p><br><br><h3>全国中华白海豚种群数量突破5000头，近海生态持续改善</h3><br><p>中际旭创再创历史新高，800G光模块份额超70%。<br><br> | 来源：<code>www.huihuabang.com
+</code></p><br><br><h3>苏州园林暑期游客量突破150万人次，江南古典园林游受青睐</h3><br><p>德业股份储能逆变器放量，前三季度业绩预增超100%。<br><br> | 来源：<code>www.bjgengke.com
+</code></p><br><br><h3>社保基金现身存储模组龙头，AI存储产品出货量超预期</h3><br><p>酱油价格单月上涨5%，调味品龙头盈利弹性释放。<br><br> | 来源：<code>www.gzly118.com
+</code></p><br><br><h3>央行下调MLF利率10个基点，引导市场利率下行</h3><br><p>保险资管扎堆调研航空发动机标的，量产交付进度引关注。<br><br> | 来源：<code>www.fm1033.cn
+</code></p><br><br><h3>全国数字经济规模上半年达32万亿元，同比增长10.2%</h3><br><p>CBA联赛总决赛收视率创新高，本土球员表现亮眼。<br><br> | 来源：<code>www.jbhn.cn
+</code></p><br><br><h3>苏州园林暑期接待人次破500万，江南古典文旅持续走红</h3><br><p>敦煌莫高窟数字展示中心升级，游客沉浸式体验千年壁画。<br><br> | 来源：<code>www.ituijie.com
+</code></p><br><br><h3>百亿级机构组团到访低空经济龙头，低空试飞进展获披露</h3><br><p>游资顶级席位打板北方华创2.1亿，半导体设备标的获热炒。<br><br> | 来源：<code>www.88684.org
+</code></p><br><br><h3>中兴通讯涨超4%，6G技术研发进度超市场预期</h3><br><p>机构资金集中买入闻泰科技1.1亿，半导体ODM龙头获抱团。<br><br> | 来源：<code>www.hanchaofan.com
+</code></p><br><br><h3>蔚来汽车换电模式优势：高端新能源车企的差异化壁垒</h3><br><p>基金公司集体到访人形电机龙头，力矩电机产能释放数据。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>QFII大幅加仓低空经济龙头，单季度持股翻倍引市场关注</h3><br><p>固德威户用储能布局：储能赛道细分龙头的成长路径。<br><br> | 来源：<code>www.captainandthechief.com
