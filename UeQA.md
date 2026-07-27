@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月27日 20时19分53秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>粤高速A异动拉升2.6%，大湾区车流量高增</h3><br><p>天齐锂业涨超5.8%，锂矿自给率优势持续凸显。<br><br> | 来源：<code>www.captainandthechief.com
+</code></p><br><br><h3>券商研究所扎堆调研虚拟电厂标的，订单爆发式增长披露</h3><br><p>QFII集中调研海上风电标的，深远海项目订单引热议。<br><br> | 来源：<code>www.szdesign-art.com
+</code></p><br><br><h3>液冷技术标的开启新股申购，AI数据中心液冷订单爆发式增长</h3><br><p>产业基金组团调研后集中增持光模块企业，合计投入超10亿。<br><br> | 来源：<code>www.vetb-us.com
+</code></p><br><br><h3>产业资本连续增持智能电网标的，特高压产业链获资本布局</h3><br><p>实控人邀约收购家电出海龙头，溢价30%发起全面要约。<br><br> | 来源：<code>www.winfae.com
+</code></p><br><br><h3>赛力斯涨超8.1%，华为智选车型销量持续攀升</h3><br><p>联合国可持续发展目标中期评估，明确后续行动路径。<br><br> | 来源：<code>www.hmmanhua.com
+</code></p><br><br><h3>保险资管连续增持光伏胶膜标的，长期配置光伏核心资产</h3><br><p>海外对冲基金组团调研预制菜龙头，B端渠道扩张节奏披露。<br><br> | 来源：<code>www.hebccpi.com
+</code></p><br><br><h3>药明康德单日涨超5%，CXO板块迎来情绪拐点</h3><br><p>贵州茅台前三季度营收破千亿，业绩预告超预期。<br><br> | 来源：<code>www.cncbsc.com
+</code></p><br><br><h3>产业基金组团调研后集中增持医药流通龙头，合计投入超6亿</h3><br><p>半导体国产替代推进：制造、设备、材料的突破路径。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>长安汽车自主转型路径：新能源车型销量爆发的底层逻辑</h3><br><p>晶澳科技涨超4.8%，光伏组件出口数据亮眼。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>长安汽车自主转型路径：新能源车型销量爆发的底层逻辑</h3><br><p>机构资金联手买入北京君正9500万，车载存储龙头获抱团。<br><br> | 来源：<code>www.77ttk.com
+</code></p><br><br><h3>机构资金联手买入东方电气6200万，能源装备龙头获抱团</h3><br><p>沪股通席位单日买入华友钴业8100万，新能源金属标的增持。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>中国神华创阶段新高2.8%，高股息属性持续获资金追捧</h3><br><p>亿纬锂能换手率超3%，量能放大下的资金动向解析。<br><br> | 来源：<code>www.zkcom-iot.com
+</code></p><br><br><h3>美联储连续降息后美元走弱，原油价格迎来趋势性反弹</h3><br><p>全国铁人三项联赛覆盖20城，参赛人数同比增长80%。<br><br> | 来源：<code>www.thepodala.com
+</code></p><br><br><h3>生活用纸价格上调4%，生活用纸龙头盈利提升</h3><br><p>外资资管举牌消费电子龙头，苹果产业链获外资持续加仓。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>药明康德MACD金叉，技术指标共振带来布局机会</h3><br><p>糖果产品价格上调6%，休闲食品全产业链景气回升。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>河北建工涨超2.7%，雄安新区基建订单饱满</h3><br><p>慢就是快：在高确定性标的上持仓，远比追热点赚得稳。<br><br> | 来源：<code>www.hnltjy.com
+</code></p><br><br><h3>中国橄榄球队首次晋级亚运会四强，项目普及度快速提升</h3><br><p>中国跳水队世锦赛包揽全部金牌，梦之队零失误完美收官。<br><br> | 来源：<code>www.www.bbca.com.cn
+</code></p><br><br><h3>世界乒乓球锦标赛中国队包揽5金，延续国乒辉煌</h3><br><p>通威股份硅料产能优势：低成本产能释放下的行业格局。<br><br> | 来源：<code>www.www.gmgs.com.cn
+</code></p><br><br><h3>海洋强国建设新规划发布，海洋经济总量突破9万亿元</h3><br><p>家电出口超预期：白电、厨电的海外市场增量空间。<br><br> | 来源：<code>www.www.abc.jx.cn
+</code></p><br><br><h3>5年期LPR下调带动居民购房意愿回升，地产销售边际改善</h3><br><p>数字人民币核心标的启动申购，线下场景覆盖突破亿级用户。<br><br> | 来源：<code>www.tiantian8.com
+</code></p><br><br><h3>东方财富互联网券商优势：流量变现的长期成长空间</h3><br><p>生活用纸价格上调4%，生活用纸龙头盈利提升。<br><br> | 来源：<code>www.zxyy999.com
