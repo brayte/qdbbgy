@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月28日 01时30分20秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>全球区块链产业规模突破万亿美元，Web3.0应用落地加速</h3><br><p>龙江交通放量上涨1.8%，东北区域车流量边际改善。<br><br> | 来源：<code>www.77ttk.com
+</code></p><br><br><h3>AI视频修复技术普及，老电影4K修复效率提升10倍</h3><br><p>头部机构组团到访核电设备龙头，新机组中标订单披露。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>中国国际跳棋队世锦赛夺冠，新兴智力运动实现突破</h3><br><p>温氏股份放量上涨4.2%，养殖业务盈利持续修复。<br><br> | 来源：<code>www.zkcom-iot.com
+</code></p><br><br><h3>中国攀岩队世锦赛夺得2金，速度攀岩世界纪录多次被打破</h3><br><p>央行发布数字人民币最新数据，交易金额突破55万亿元。<br><br> | 来源：<code>www.thepodala.com
+</code></p><br><br><h3>央行下调再贷款再贴现利率，小微和三农融资成本下行</h3><br><p>电竞入亚成绩亮眼，电竞游戏产业链标的拉升。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>天赐材料电解液成本控制：行业龙头的规模优势解析</h3><br><p>美联储连续第二次降息，北向资金单日净流入超百亿。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>海螺水泥水泥价格回升，单季业绩预告超预期</h3><br><p>先导智能技术积累：锂电设备全球龙头的核心竞争力。<br><br> | 来源：<code>www.hnltjy.com
+</code></p><br><br><h3>金风科技异动拉升4.5%，海上风电装机量超预期</h3><br><p>中远海控异动拉升3.3%，集运运价阶段性反弹。<br><br> | 来源：<code>www.www.bbca.com.cn
+</code></p><br><br><h3>国内大模型备案数量破千款，行业应用落地加速</h3><br><p>中国-东盟自贸区3.0版谈判完成，贸易便利化升级。<br><br> | 来源：<code>www.www.gmgs.com.cn
+</code></p><br><br><h3>海参价格单月上涨18%，海产养殖龙头盈利提升</h3><br><p>全国博物馆暑期接待人次破2亿，研学游订单同比翻倍。<br><br> | 来源：<code>www.www.abc.jx.cn
+</code></p><br><br><h3>中国男子皮划艇队世锦赛夺冠，静水项目实现金牌零突破</h3><br><p>闻泰科技异动拉升4.9%，半导体ODM业务盈利修复。<br><br> | 来源：<code>www.tiantian8.com
+</code></p><br><br><h3>地方国资战略入股数据要素龙头，持股比例达12%成第二大股东</h3><br><p>专精特新企业扶持政策，专精特新标的全线异动。<br><br> | 来源：<code>www.zxyy999.com
+</code></p><br><br><h3>科达利结构件精密制造：锂电池结构件龙头的全球份额</h3><br><p>全国非遗文旅体验点破2000个，非遗游成暑期新潮流。<br><br> | 来源：<code>www.qianfangdiy.cn
+</code></p><br><br><h3>央行下调MLF利率10个基点，引导市场利率下行</h3><br><p>包装纸价格上涨5%，包装板块成本端压力传导顺畅。<br><br> | 来源：<code>www.tianmeichina.com
+</code></p><br><br><h3>大模型在环保领域应用，污染源识别准确率超96%</h3><br><p>上半年全国新能源汽车电池出口同比增长40%。<br><br> | 来源：<code>www.79lr.com
+</code></p><br><br><h3>数据要素政策落地，数据确权板块全线上涨</h3><br><p>中通客车异动拉升4.1%，海外市场拓展加速。<br><br> | 来源：<code>www.qzu.zj.cn
+</code></p><br><br><h3>全国文旅数字化升级，超500家景区实现AR导览全覆盖</h3><br><p>醋产品价格上调6%，食醋板块盈利改善。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>宝钢股份板材盈利修复，前三季度业绩预增超30%</h3><br><p>存量房贷利率下调释放万亿现金流，可选消费板块弹性最大。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>洽洽食品涨超3.4%，坚果业务收入增速回升</h3><br><p>慢就是快：在高确定性标的上持仓，远比追热点赚得稳。<br><br> | 来源：<code>www.jyylj.com
+</code></p><br><br><h3>香港高校内地招生扩容500名额，新增大湾区相关特色专业</h3><br><p>全国古籍保护工程完成，超3000万册古籍得到妥善修复。<br><br> | 来源：<code>www.chtea.ac.cn
+</code></p><br><br><h3>地方国资战略入股卫星互联网标的，助力星座组网建设</h3><br><p>3D生成大模型技术突破，1分钟生成高精度工业模型。<br><br> | 来源：<code>www.idmcinc.com
