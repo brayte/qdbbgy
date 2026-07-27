@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月28日 01时30分22秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>全球粮食安全峰会召开，达成百亿美元援助计划应对饥荒</h3><br><p>国内大模型专利申请量全球第一，占比超60%。<br><br> | 来源：<code>www.mc53.cn
+</code></p><br><br><h3>国内高端旅游产品走俏，定制游订单同比增长90%</h3><br><p>钙钛矿光伏企业开启新股申购，量产进度领先行业获资金热捧。<br><br> | 来源：<code>www.szhdly.com.cn
+</code></p><br><br><h3>10年期国债收益率下行，保险板块配置压力边际缓解</h3><br><p>国足世预赛客场2-1逆转日本，创造历史首次客场击败对手。<br><br> | 来源：<code>www.88684.org
+</code></p><br><br><h3>草原生态保护政策，草牧业板块全线拉升</h3><br><p>亨通光电涨超4.4%，海洋能源业务贡献增量。<br><br> | 来源：<code>www.fjzp.net
+</code></p><br><br><h3>房贷利率下调后二手房成交回暖，家居家电需求回升</h3><br><p>全国森林覆盖率提升至24.5%，年新增造林面积超600万公顷。<br><br> | 来源：<code>www.hanchaofan.com
+</code></p><br><br><h3>锂电设备海外订单爆发：产业链业绩弹性排序</h3><br><p>伊利股份乳制品龙头优势：国内乳业龙头的品牌与渠道。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>故宫博物院暑期门票秒空，日均接待游客突破8万人次</h3><br><p>百亿私募组团调研碳纤维企业，风电领域应用占比突破60%。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>江铃汽车新能源轻卡高增，单季业绩预告超预期</h3><br><p>天然气价格季节性上涨，燃气运营板块异动。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>全国野生东北豹种群数量突破100只，生物链完整性恢复</h3><br><p>海参价格单月上涨18%，海产养殖龙头盈利提升。<br><br> | 来源：<code>www.captainandthechief.com
+</code></p><br><br><h3>私募基金仓位创年内新高，私募重仓标的上涨</h3><br><p>粤高速A异动拉升2.6%，大湾区车流量高增。<br><br> | 来源：<code>www.szdesign-art.com
+</code></p><br><br><h3>全国冰雪运动参与人数突破3亿，带动冰雪产业规模超8000亿</h3><br><p>全国心理健康服务体系覆盖所有高校，心理疏导惠及千万学生。<br><br> | 来源：<code>www.vetb-us.com
+</code></p><br><br><h3>水利工程建设规划，水利基建板块走强</h3><br><p>全国疫苗接种覆盖率保持99%以上，免疫规划覆盖所有适龄人群。<br><br> | 来源：<code>www.winfae.com
+</code></p><br><br><h3>大模型轻量化技术突破，1B参数模型效果追平百亿级模型</h3><br><p>长电科技先进封装技术：全球封测龙头的份额提升逻辑。<br><br> | 来源：<code>www.hmmanhua.com
+</code></p><br><br><h3>国产历史剧细节考究，多部作品成为全网热议文化现象</h3><br><p>全国餐饮营收上半年突破4万亿，夜间餐饮占比超60%。<br><br> | 来源：<code>www.hebccpi.com
+</code></p><br><br><h3>江特电机锂矿资源优势：云母提锂龙头的盈利弹性解析</h3><br><p>中际旭创再创历史新高，800G光模块份额超70%。<br><br> | 来源：<code>www.cncbsc.com
+</code></p><br><br><h3>泸州老窖品牌升级：国窖1573的高端化成长路径解析</h3><br><p>全国机动车国六b标准全面实施，新车排放污染大幅降低。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>亚星客车放量上涨3.9%，新能源客车盈利改善</h3><br><p>宝钢股份企稳回升，低位标的的补涨机会分析。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>大股东耗资4.5亿增持碳化硅衬底龙头，助力6英寸产能扩张</h3><br><p>金砖国家新开发银行新增贷款规模突破500亿美元。<br><br> | 来源：<code>www.77ttk.com
+</code></p><br><br><h3>产业资本集中增持休闲食品龙头，线下渠道复购改善获布局</h3><br><p>高管团队集体增持宠物食品龙头，合计增持超6500万。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>全国文旅数字化升级，超500家景区实现AR导览全覆盖</h3><br><p>上半年全国财政收入同比增长3.7%，民生支出占比超70%。<br><br> | 来源：<code>www.zkcom-iot.com
+</code></p><br><br><h3>中国通号高铁信号技术：全球轨交信号系统龙头的壁垒</h3><br><p>上半年全国网上零售额同比增长9.5%，直播电商贡献突出。<br><br> | 来源：<code>www.thepodala.com
