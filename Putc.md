@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分41秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>实控人邀约收购家电出海龙头，溢价30%发起全面要约</h3><br><p>AI图像识别技术突破，缺陷检测准确率超99.5%。<br><br> | 来源：<code>https://aiqingdaoguanfangluntan.org.cn
+</code></p><br><br><h3>社保基金新进重仓钙钛矿光伏标的，持仓占比达4.2%</h3><br><p>五粮液中秋动销超预期，单季业绩预告超预期。<br><br> | 来源：<code>https://aiqingdaoguanwang.org.cn
+</code></p><br><br><h3>券商研究所扎堆调研虚拟电厂标的，订单爆发式增长披露</h3><br><p>QFII集中调研休闲食品龙头，线下渠道复购率数据公开。<br><br> | 来源：<code>https://aiqingdaoluntan.org.cn
+</code></p><br><br><h3>五粮液品牌与渠道优势：浓香型白酒龙头的护城河解析</h3><br><p>自驾游市场上半年订单同比增长55%，房车旅行成为新选择。<br><br> | 来源：<code>https://aiqingdaoluntandaohang.org.cn
+</code></p><br><br><h3>城市漫步Citywalk成新潮流，相关搜索量同比暴涨300%</h3><br><p>游资顶级席位打板亨通光电5400万，海缆标的获热炒。<br><br> | 来源：<code>https://aiqingdaoluntandujia.org.cn
+</code></p><br><br><h3>油气增储上产政策，油气设备板块集体上涨</h3><br><p>国产现实题材电影票房占比超60%，贴近生活引发全民共鸣。<br><br> | 来源：<code>https://aiqingdaoluntandujiatigong.org.cn
+</code></p><br><br><h3>苏州园林暑期接待人次破500万，江南古典文旅持续走红</h3><br><p>国产历史剧细节考究，多部作品成为全网热议文化现象。<br><br> | 来源：<code>https://aiqingdaoluntanguanwang.org.cn
+</code></p><br><br><h3>金风科技风电装机超预期，前三季度业绩预增超40%</h3><br><p>社保基金新进汽车座椅龙头，布局汽车轻量化赛道。<br><br> | 来源：<code>https://aiqingdaoluntanshouye.org.cn
+</code></p><br><br><h3>养老金现身创新器械标的，海外FDA获批进度超预期</h3><br><p>中国茶文化申遗成功，成为人类非物质文化遗产代表作。<br><br> | 来源：<code>https://aiqingdaoluntanwangzhan.org.cn
+</code></p><br><br><h3>中国跆拳道队世锦赛斩获5金，金牌数位列奖牌榜第一</h3><br><p>百亿私募组团调研碳化硅企业，车规级器件量产线投产。<br><br> | 来源：<code>https://aiqingdaoluntanwangzhi.org.cn
+</code></p><br><br><h3>美联储降息周期开启，黄金珠宝板块迎来趋势性行情</h3><br><p>知名私募大手笔增持储能电池标的，海外户储订单获资本布局。<br><br> | 来源：<code>https://aiqingdaoluntanxianlu.org.cn
+</code></p><br><br><h3>国内动漫文旅融合项目爆发，动漫主题乐园暑期营收破百亿</h3><br><p>巴西经济复苏，二季度农业工业双增长。<br><br> | 来源：<code>https://aiqingdaoluntanyazhou.org.cn
+</code></p><br><br><h3>中国平安权重护盘，大金融板块托底A股指数</h3><br><p>国内动漫文旅融合项目爆发，动漫主题乐园暑期营收破百亿。<br><br> | 来源：<code>https://aiqingdaoluntanyongjiuyuming.org.cn
+</code></p><br><br><h3>龙江交通放量上涨1.8%，东北区域车流量边际改善</h3><br><p>紫金矿业铜金产量超预期，前三季度业绩预增80%。<br><br> | 来源：<code>https://aiqingdaoluntanzaixian.org.cn
+</code></p><br><br><h3>沃森生物涨超4.6%，新型疫苗临床进展超预期</h3><br><p>万华化学研发投入优势：化工龙头持续技术迭代的底层逻辑。<br><br> | 来源：<code>https://aiqingdaoluntanzaixianguankan.org.cn
+</code></p><br><br><h3>医疗大模型辅助手术落地，精准操作误差控制在0.1毫米</h3><br><p>AI数字人主播全面普及，超千家电视台启用AI虚拟主持人。<br><br> | 来源：<code>https://aiqingdaoshipin.org.cn
+</code></p><br><br><h3>高标准农田建设规划，农田基建板块集体上涨</h3><br><p>中际旭创客户优势：全球云厂商的深度绑定合作关系。<br><br> | 来源：<code>https://aiqingdaoshouyeluntan.org.cn
+</code></p><br><br><h3>2026年全国高考报名人数1391万，多地新增AI相关专业招生</h3><br><p>储能电池价格小幅上涨3%，储能产业链价格体系企稳。<br><br> | 来源：<code>https://aiqingdaowangzhan.org.cn
+</code></p><br><br><h3>芬兰经济走出衰退，绿色技术产业拉动复苏</h3><br><p>拓普集团护城河分析：汽车零部件平台型企业的长期价值。<br><br> | 来源：<code>https://aiqingdaowangzhi.org.cn
+</code></p><br><br><h3>机构席位大额买入中国中铁6500万，基建龙头获长线布局</h3><br><p>AIGC内容监管细则出台，AI内容标的集体拉升。<br><br> | 来源：<code>https://aiqingdaoxianlu.org.cn
