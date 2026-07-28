@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分19秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>全国碳排放强度同比下降4.2%，提前完成"十四五"减排目标</h3><br><p>恩捷股份异动拉升5.4%，锂电池隔膜份额持续提升。<br><br> | 来源：<code>https://baoliao-wang.cn
+</code></p><br><br><h3>河北建工涨超2.7%，雄安新区基建订单饱满</h3><br><p>北向资金大额扫货万华化学1.3亿，化工龙头获外资流入。<br><br> | 来源：<code>https://baoyu-shipin.com.cn
+</code></p><br><br><h3>QFII集中调研休闲食品龙头，线下渠道复购率数据公开</h3><br><p>中兴通讯涨超4%，6G技术研发进度超市场预期。<br><br> | 来源：<code>https://baoyu-tv.com.cn
+</code></p><br><br><h3>控股股东耗资2.8亿增持创新药龙头，核心管线临床进展获信心</h3><br><p>金风科技异动拉升4.5%，海上风电装机量超预期。<br><br> | 来源：<code>https://baoyu-wangzhan.com.cn
+</code></p><br><br><h3>企业中长期贷款增速回升，宽信用效果逐步显现</h3><br><p>国际油价大幅上涨，油气开采板块全线拉升。<br><br> | 来源：<code>https://baoyuguanwang.com.cn
+</code></p><br><br><h3>全国城市建筑垃圾资源化利用率达70%，变废为宝生产建材</h3><br><p>中国电竞队亚运会卫冕金牌，电竞入奥进程加速推进。<br><br> | 来源：<code>https://baoyuhezi.org.cn
+</code></p><br><br><h3>洛阳龙门石窟暑期推出夜游项目，门票上线即秒空</h3><br><p>思源电气电网设备优势：民营电网设备龙头的技术积累。<br><br> | 来源：<code>https://baoyushipin.com.cn
+</code></p><br><br><h3>蒙牛乳业放量上涨3.7%，低温奶业务增速亮眼</h3><br><p>车载激光雷达企业登陆科创板，量产交付进度超市场预期。<br><br> | 来源：<code>https://baoyutv.com.cn
+</code></p><br><br><h3>页岩气勘探开发政策，页岩气开采板块走强</h3><br><p>全国公积金贷款政策优化，支持居民合理住房需求。<br><br> | 来源：<code>https://baoyutvtiaozhuan.com.cn
+</code></p><br><br><h3>国产现实题材电视剧收视领跑，多部作品斩获国际奖项</h3><br><p>中远海控集运运价反弹，单季业绩预告环比大增。<br><br> | 来源：<code>https://baoyuwangzhan.com.cn
+</code></p><br><br><h3>全国研究生考试报名人数首次回落，就业导向成为报考主流</h3><br><p>全国公积金贷款政策优化，支持居民合理住房需求。<br><br> | 来源：<code>https://baoyuwangzhifabu.com.cn
+</code></p><br><br><h3>杭州西湖暑期日均客流超30万，智慧景区系统保障游览秩序</h3><br><p>中国赛艇队奥运会夺得2金，水上项目实现历史性跨越。<br><br> | 来源：<code>https://baoyuwangzhiyuming.com.cn
+</code></p><br><br><h3>机构+北向合力买入新希望6700万，养殖标的获资金布局</h3><br><p>光伏组件出口创历史新高，光伏海外链标的走强。<br><br> | 来源：<code>https://baoyuzuixinyumingchaxun.com.cn
+</code></p><br><br><h3>新能源汽车出口数据翻倍，整车出口标的集体异动</h3><br><p>央行加大结构性降息力度，精准支持数字经济领域。<br><br> | 来源：<code>https://bb-caipiao-app.com
+</code></p><br><br><h3>上半年全国汽车出口突破230万辆，连续3年位居全球第一</h3><br><p>全球智能家居市场规模突破1万亿美元，智慧家庭普及。<br><br> | 来源：<code>https://bb-sports-hub.com.cn
+</code></p><br><br><h3>氢能产业中长期规划，氢能源全板块集体上涨</h3><br><p>外资机构集中调研短视频出海标的，海外用户规模破亿。<br><br> | 来源：<code>https://bb-sports-net.com.cn
+</code></p><br><br><h3>尿素价格单月上涨9%，化肥板块迎来产品涨价催化</h3><br><p>通威股份硅料产能优势：低成本产能释放下的行业格局。<br><br> | 来源：<code>https://bb-sports-pro.com.cn
+</code></p><br><br><h3>阳光电源逆变器技术：全球逆变器龙头的技术迭代能力</h3><br><p>啤酒开启新一轮涨价潮，啤酒板块盈利弹性释放。<br><br> | 来源：<code>https://bb-sports-zone.com.cn
+</code></p><br><br><h3>“双减”成效显著，校外违规培训机构清零率超98%</h3><br><p>全国氢能产业示范城市群落地，燃料电池汽车推广超12万辆。<br><br> | 来源：<code>https://bbsports-web.com.cn
+</code></p><br><br><h3>三安光电化合物半导体布局：LED+碳化硅的长期空间</h3><br><p>爱尔兰经济保持稳定增长，高科技产业优势凸显。<br><br> | 来源：<code>https://bcbm788-web-vip.com
